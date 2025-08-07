@@ -14,14 +14,13 @@ No road signs, no souvenir stands—just 11 miles of mud, cliffs, and sweeping v
 
 ## August 2025
 
-| [![Off the grid](https://www.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_UHD.jpg&pid=hp&w=2560)](https://bing.codexun.com/us/detail/20250807) | [![Tide and seek](https://www.bing.com/th?id=OHR.CaliforniaTidepool_EN-US9089576317_UHD.jpg&pid=hp&w=2560)](https://bing.codexun.com/us/detail/20250806) | [![Whooo's home?](https://www.bing.com/th?id=OHR.LaplandOwl_EN-US8965493818_UHD.jpg&pid=hp&w=2560)](https://bing.codexun.com/us/detail/20250805) | 
+| | | |
 |:---:|:---:|:---:|
+| [![Off the grid](https://www.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_UHD.jpg&pid=hp&w=2560)](https://bing.codexun.com/us/detail/20250807) | [![Tide and seek](https://www.bing.com/th?id=OHR.CaliforniaTidepool_EN-US9089576317_UHD.jpg&pid=hp&w=2560)](https://bing.codexun.com/us/detail/20250806) | [![Whooo's home?](https://www.bing.com/th?id=OHR.LaplandOwl_EN-US8965493818_UHD.jpg&pid=hp&w=2560)](https://bing.codexun.com/us/detail/20250805) | 
 | **[Off the grid](https://bing.codexun.com/us/detail/20250807)**<br>Kalalau Beach on the Nā Pali Coast, Kauai, Hawaii<br>*2025-08-07* | **[Tide and seek](https://bing.codexun.com/us/detail/20250806)**<br>Tide pools in La Jolla, California<br>*2025-08-06* | **[Whooo's home?](https://bing.codexun.com/us/detail/20250805)**<br>Great gray owls in their nest, Finland<br>*2025-08-05* | 
 | [![Hello yellow!](https://www.bing.com/th?id=OHR.HappySunflower_EN-US8791544241_UHD.jpg&pid=hp&w=2560)](https://bing.codexun.com/us/detail/20250804) | [![Age-old storyboard](https://www.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_UHD.jpg&pid=hp&w=2560)](https://bing.codexun.com/us/detail/20250803) | [![Expect the unexpected](https://www.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_UHD.jpg&pid=hp&w=2560)](https://bing.codexun.com/us/detail/20250802) | 
-|:---:|:---:|:---:|
 | **[Hello yellow!](https://bing.codexun.com/us/detail/20250804)**<br>Sunflowers in a field in summer<br>*2025-08-04* | **[Age-old storyboard](https://bing.codexun.com/us/detail/20250803)**<br>Petroglyphs near Fruita in Capitol Reef National Park, Utah<br>*2025-08-03* | **[Expect the unexpected](https://bing.codexun.com/us/detail/20250802)**<br>Royal Mile, Edinburgh, Scotland<br>*2025-08-02* | 
 | [![Madagascar native](https://www.bing.com/th?id=OHR.BabyLemur_EN-US9264861498_UHD.jpg&pid=hp&w=2560)](https://bing.codexun.com/us/detail/20250801) |  |  | 
-|:---:|:---:|:---:|
 | **[Madagascar native](https://bing.codexun.com/us/detail/20250801)**<br>Ring-tailed lemur infant playing with its own tail, Madagascar<br>*2025-08-01* |  |  | 
 
 

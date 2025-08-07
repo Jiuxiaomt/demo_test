@@ -14,14 +14,13 @@ Lange bevor die Navigation durch moderne Technik übernommen wurde, waren Leucht
 
 ## August 2025
 
-| [![Stille Helden der Seefahrt](https://www.bing.com/th?id=OHR.GasparillaLight_DE-DE5398633166_UHD.jpg&pid=hp&w=2560)](https://bing.codexun.com/de/detail/20250807) | [![Ein pelziger Geselle](https://www.bing.com/th?id=OHR.BabyLemur_DE-DE7888318090_UHD.jpg&pid=hp&w=2560)](https://bing.codexun.com/de/detail/20250806) | [![Bayerische Idylle](https://www.bing.com/th?id=OHR.PoppyfieldAdelschlag_DE-DE8788732067_UHD.jpg&pid=hp&w=2560)](https://bing.codexun.com/de/detail/20250805) | 
+| | | |
 |:---:|:---:|:---:|
+| [![Stille Helden der Seefahrt](https://www.bing.com/th?id=OHR.GasparillaLight_DE-DE5398633166_UHD.jpg&pid=hp&w=2560)](https://bing.codexun.com/de/detail/20250807) | [![Ein pelziger Geselle](https://www.bing.com/th?id=OHR.BabyLemur_DE-DE7888318090_UHD.jpg&pid=hp&w=2560)](https://bing.codexun.com/de/detail/20250806) | [![Bayerische Idylle](https://www.bing.com/th?id=OHR.PoppyfieldAdelschlag_DE-DE8788732067_UHD.jpg&pid=hp&w=2560)](https://bing.codexun.com/de/detail/20250805) | 
 | **[Stille Helden der Seefahrt](https://bing.codexun.com/de/detail/20250807)**<br>Gasparilla Island Rear Range Light, Boca Grande, Florida, USA<br>*2025-08-07* | **[Ein pelziger Geselle](https://bing.codexun.com/de/detail/20250806)**<br>Katta-Junges spielt mit seinem Schwanz, Madagaskar<br>*2025-08-06* | **[Bayerische Idylle](https://bing.codexun.com/de/detail/20250805)**<br>Mohnfelder, Adelschlag, Bayern<br>*2025-08-05* | 
 | [![Mystische Jäger der Nacht](https://www.bing.com/th?id=OHR.LaplandOwl_DE-DE9006060436_UHD.jpg&pid=hp&w=2560)](https://bing.codexun.com/de/detail/20250804) | [![Gelb, so weit das Auge reicht](https://www.bing.com/th?id=OHR.HappySunflower_DE-DE9238055118_UHD.jpg&pid=hp&w=2560)](https://bing.codexun.com/de/detail/20250803) | [![Historische Pracht](https://www.bing.com/th?id=OHR.HerrenhaeuserHannover_DE-DE9700830017_UHD.jpg&pid=hp&w=2560)](https://bing.codexun.com/de/detail/20250802) | 
-|:---:|:---:|:---:|
 | **[Mystische Jäger der Nacht](https://bing.codexun.com/de/detail/20250804)**<br>Bartkäuze im Nest, Finnland<br>*2025-08-04* | **[Gelb, so weit das Auge reicht](https://bing.codexun.com/de/detail/20250803)**<br>Blühende Sonnenblumen auf einem Feld im Sommer<br>*2025-08-03* | **[Historische Pracht](https://bing.codexun.com/de/detail/20250802)**<br>Herrenhäuser und Gärten am Abend, Hannover, Niedersachsen<br>*2025-08-02* | 
 | [![Die Stadt wird zur Bühne](https://www.bing.com/th?id=OHR.EdinburghFringe_DE-DE9968170483_UHD.jpg&pid=hp&w=2560)](https://bing.codexun.com/de/detail/20250801) |  |  | 
-|:---:|:---:|:---:|
 | **[Die Stadt wird zur Bühne](https://bing.codexun.com/de/detail/20250801)**<br>Royal Mile, Edinburgh, Schottland<br>*2025-08-01* |  |  | 
 
 
